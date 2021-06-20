@@ -1,1 +1,1 @@
-## Goto https://gitprofilefinder.debugentity.me
+## Goto https://gitprofilefinder.bhanuprakash.tech
