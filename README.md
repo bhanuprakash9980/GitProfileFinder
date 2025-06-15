@@ -1,1 +1,1 @@
-## Goto https://gitprofilefinder.bhanuprakash.tech
+## Goto https://gitprofilefinder.bhanuprakash.in
